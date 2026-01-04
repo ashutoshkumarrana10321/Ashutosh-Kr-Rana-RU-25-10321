@@ -1,4 +1,5 @@
 # Ashutosh-Kr-Rana-RU-25-10321
+[miniprojectoutput.pdf](https://github.com/user-attachments/files/24422914/miniprojectoutput.pdf)
 
 ## 📖 About the Project
 ## 🎯 Why I Created This Project
