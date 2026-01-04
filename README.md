@@ -1,5 +1,5 @@
 # Ashutosh-Kr-Rana-RU-25-10321
-[miniprojectoutput.pdf](https://github.com/user-attachments/files/24422914/miniprojectoutput.pdf)
+<img width="1470" height="955" alt="Image" src="https://github.com/user-attachments/assets/940435d9-d7b3-4fab-9267-b90529ac7961" />
 
 ## 📖 About the Project
 ## 🎯 Why I Created This Project
